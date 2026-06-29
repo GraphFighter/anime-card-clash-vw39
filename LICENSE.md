@@ -1,4 +1,4 @@
-
+secret welcome to bloxburg Scripts offers the most advanced welcome to bloxburg Script, with no cooldown and one-hit kill. Perfect for dominating any
 
 
 
